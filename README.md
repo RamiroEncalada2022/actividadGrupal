@@ -1,1 +1,1 @@
-# actividadGrupal
+Oscar Bernardo Soto
